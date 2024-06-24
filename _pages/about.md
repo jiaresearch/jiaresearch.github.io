@@ -13,9 +13,13 @@ I'm Xiaoran (Jason) Jia, a dedicated researcher specializing in accounting, fina
 My Upcoming Schedules (Research/Teaching)
 ======
 Spring 2024  - Research Term
+
 Fall 2024    - Research Term
+
 Winter 2025  - Teaching Term (On Campus - Tue/Thur each week)
+
 Spring 2025  - Teaching Term (On Campus - Wed each week)
+
 Fall 2025    - Research Term 
 
 Contact me
