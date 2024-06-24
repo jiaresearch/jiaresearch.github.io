@@ -10,7 +10,7 @@ redirect_from:
 
 I'm Xiaoran (Jason) Jia, a dedicated researcher specializing in accounting, finance, and economics. I invite you to explore my work and share in the insights of this interdisciplinary field.
 
-A data-driven personal website
+My Upcoming Schedules (Research/Teaching)
 ======
 Spring 2024  - Research Term
 Fall 2024    - Research Term
